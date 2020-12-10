@@ -1,2 +1,0 @@
-# neogcamp-week3
- 
